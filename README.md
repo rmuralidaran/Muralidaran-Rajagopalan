@@ -37,7 +37,4 @@ Others:
 ➢ Executed 500MW and commissioned coal based unit in a record 36 months from zero date 
 ➢ Carried out O&M activities for a 2600MW coal based thermal power station in India 
 ➢ Consultancy work done for a 150 MW gas based CCCP at Ghana for an IPP covering commercial agreements, EPC contracts, valuation for equity divestment, Site studies etc., 
-Page 2 of 3 
-
-　
 ➢ Carried out site selection, site studies, signed an MoU with a Local IPP at Nigeria for a 385 MW gas based CCCP 
